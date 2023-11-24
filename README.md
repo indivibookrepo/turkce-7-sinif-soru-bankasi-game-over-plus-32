@@ -1,0 +1,1 @@
+# turkce-7-sinif-soru-bankasi-game-over-plus-32
